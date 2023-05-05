@@ -1,2 +1,2 @@
 # part-time
-fuck this shit!!!
+fuck this intresting shit!!!
